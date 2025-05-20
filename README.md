@@ -47,4 +47,4 @@ A partir del análisis de estos indicadores, se genera un informe estratégico q
 ## 📬 Contacto
 
 Para dudas, sugerencias o colaboración, puedes escribirme a:
-✉️ *\[tu correo o portafolio, si deseas agregarlo]*
+✉️ *\[mauriciovp00@outlook.com]*
